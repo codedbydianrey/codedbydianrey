@@ -1,3 +1,5 @@
+![Designer and Developer](https://github.com/codedbydianrey/codedbydianrey/blob/main/DIANREY%20DELAS%20NADAS.jpg)
+
 ## Hi there, I am Dianrey! 👋
 
 <!--
